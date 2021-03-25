@@ -1,0 +1,1 @@
+a basic means of support; source of livelihood
